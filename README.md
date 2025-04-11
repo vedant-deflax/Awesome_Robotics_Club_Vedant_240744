@@ -1,0 +1,1 @@
+A bot balancing a ball will be so interesting to imagine! I have never worked on any project of this club, but I always wanted to join. Now, I believe this is a chance to work, learn, and make a good contribution to this project and the club.
